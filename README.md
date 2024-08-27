@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently studying biomedical engineering<br> at the Faculty of Electronics and Information Technology<br> at the Warsaw University of Technology<br>🤝 I’m looking for first job/intern<br>
+🌱 I’m currently studying biomedical engineering<br> at the Faculty of Electronics and Information Technology<br> at the Warsaw University of Technology<br>
 
 
 ## 🌐 Socials:
